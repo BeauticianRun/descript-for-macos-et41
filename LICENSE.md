@@ -1,4 +1,4 @@
-# 
+# rare Descript for macOS Template | text-animation + scene-transitions is the best Descript for macOS template, featuring text-animation and scene-transitions. Safe, efficient, and
 
 
 
